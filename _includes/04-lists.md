@@ -1,3 +1,3 @@
-
-*These are my favourite places.*
-_I always love to travel to these places_
+1. Kurnool
+2. Hyderabad
+* vizag
